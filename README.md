@@ -6,3 +6,5 @@ Communicate with 20 team members coming from China, Myanmar, India and New Zeala
 Provide Google doc template for seeking potential contestants to participate the event.
 
 Leave creative impression themes event in Grand International King and Queen’18 by attracting 500 attendants following the event.
+![alt](./30698717_371821356668282_3242632800184041472_n.jpg)
+![alt](./1596865918445.jfif)
